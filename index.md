@@ -20,18 +20,23 @@ I am recommended Create New Account on Blockchain or Coinbase.
 
 AFTER DOWNLOAD : 
 
-➡️ OPEN APPS 
-➡️ CLICK SIGN UP 
-➡️ SUBMIT EMAIL 
-➡️ TYPE ANY NUMBER PASSWORD 
+➡️ OPEN APPS
+
+➡️ CLICK SIGN UP
+
+➡️ SUBMIT EMAIL
+
+➡️ TYPE ANY NUMBER PASSWOR
+
 ➡️ REFER BOX 🆔 2xwmddah34
+
 
  IF YOU TYPE THIS I AM GET 30% BONUS . 
 
 ➡️ CLICK DONE 
 
 
-N.B ➡️➡️➡️
+N.B:
 
 1. TOOLS API KEY USABLE 7 DAYS 
 2. DAILY LIMIT 1 BITCOIN HERE WE SHOE
