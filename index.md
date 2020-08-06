@@ -1,37 +1,42 @@
-## Welcome to GitHub Pages
+How to generate free Bitcoin
 
-You can use the [editor on GitHub](https://github.com/BitKingCrypto/Mining/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+1. Enter your personal Bitcoin Wallet Address – make sure to enter a valid wallet address. 
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+I am recommended Create New Account on Blockchain or Coinbase. 
 
-### Markdown
+2. Select the amount of Bitcoin that you want to generate. You may choose between 1 BTC and 2 BTC.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+( Recommend 2 BTC)
 
-```markdown
-Syntax highlighted code block
+3. Click on the green button to start the exploiting process.
 
-# Header 1
-## Header 2
-### Header 3
+4. Its Take 10 minute for 1 btc & 2 BTC 20 Minute .
 
-- Bulleted
-- List
+5. In just 10/20 minutes you will receive your Own Bitcoin in your wallet Without Fee or Other's Things. 
 
-1. Numbered
-2. List
+6. Download Tools From This Link Please :
+ 🔗 https://gettelelink.blogspot.com
 
-**Bold** and _Italic_ and `Code` text
 
-[Link](url) and ![Image](src)
-```
+AFTER DOWNLOAD : 
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+➡️ OPEN APPS 
+➡️ CLICK SIGN UP 
+➡️ SUBMIT EMAIL 
+➡️ TYPE ANY NUMBER PASSWORD 
+➡️ REFER BOX 🆔 2xwmddah34
 
-### Jekyll Themes
+ IF YOU TYPE THIS I AM GET 30% BONUS . 
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/BitKingCrypto/Mining/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+➡️ CLICK DONE 
 
-### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+N.B ➡️➡️➡️
+
+1. TOOLS API KEY USABLE 7 DAYS 
+2. DAILY LIMIT 1 BITCOIN HERE WE SHOE
+3. AFTER 7 DAYS THEN YOU CAN ORDER AGAIN .
+
+
+THATS TOO EASY WAY TO EARN 2 BITCOIN WITH SMARTPHONE OR PC DAILY . 
+CONTINUE 7 DAYS DAILY EARN
